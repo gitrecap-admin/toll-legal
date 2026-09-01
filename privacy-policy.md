@@ -83,7 +83,7 @@ of your data.
 
 ## Contact
 
-Questions about privacy: **[your support email]**
+Questions about privacy: **dhruwangjariwala18@gmail.com**
 
 <!-- Fill in the address above before publishing. Apple requires a working
      contact on the page a Privacy Policy URL points at. -->
